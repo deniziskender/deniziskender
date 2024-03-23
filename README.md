@@ -1,7 +1,7 @@
 
 
 👋2 master's degrees (Computer science & MBA)  
-👋Writing Java code full-time for 5 years  
+👋Writing Java code full-time for 6+ years  
 👋A lot of unsuccessful entrepreneur team-projects :)  
 
 
